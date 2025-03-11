@@ -5,6 +5,17 @@
 
 ## **About me**
 
+<picture><img src="https://i.pinimg.com/originals/d8/2e/1a/d82e1a2a4d5927866b4a8e2f027b9cbb.gif" align="right" alt="Kinda dumd student tbh"><picture>
+</br>
+- Currently I am a sophomore so I always want to learn new things
+- I would love to using meme in some tense situations like making github profile
+- I'm always suffer from impostor syndrome. Man, why can't I make more beauty github profile...
+</br>
+</br>
+</br>
+</br>
+</br>
+
 ## **Skills**
 
 Last Edited on: 11/03/2025 (or 03/11/2025 if you are American :D)
